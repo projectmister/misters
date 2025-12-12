@@ -5,7 +5,7 @@
   <img src="docs/images/2.png"/>
   <br>
 </div>
-
+<br>
 <div align="left">
     <p>Essa é a documentação completa do Projeto Misters
     </p>
