@@ -1,1 +1,7 @@
 # Agradecimentos
+
+
+Mensagem de: Mister West <br>
+Para: Todos os Misters
+
+À medida que percorremos esta jornada, desejo expressar profunda gratidão e reconhecimento a todos que contribuíram para a construção desta comunidade. Agradecemos calorosamente a cada Mister, membro dedicado que oferece suas habilidades únicas e sua paixão pela segurança, pesquisa, estudo, desenvolvimento, análise e aprimoramento constante. Valorizamos profundamente o esforço individual e coletivo, o espírito colaborativo, o interesse contínuo, a busca pelo conhecimento, a participação, a troca de experiências e o compromisso com a evolução pessoal. Seu compartilhamento generoso de conhecimento é um testemunho da solidariedade que define os Misters. Também estendemos nosso reconhecimento àqueles que decidiram entrar na Misters para aprender tudo do zero. Sua disposição em iniciar uma nova jornada, aprender, crescer e se desafiar representa a essência da nossa comunidade. Cada passo dado, por menor que pareça, fortalece ainda mais o propósito que nos une. Aos membros que enfrentaram adversidades online e compartilharam suas histórias, vocês são os verdadeiros heróis que inspiram nossa missão diária. Sua coragem em superar desafios é um lembrete constante do porquê a Misters existe. Por fim, nosso agradecimento se estende a todos os usuários da internet. Cada pessoa que busca um ambiente virtual mais seguro e positivo é um aliado em nossa missão de combater a malícia online.
