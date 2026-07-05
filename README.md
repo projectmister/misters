@@ -6,7 +6,7 @@
   <br>
 </div>
 <br>
-<div align="left">
-    <p>Essa é a documentação completa do Projeto Misters
-    </p>
+<div align="center">
+    <h1>Essa é a documentação completa do Projeto Misters
+    </h1>
 </div>
